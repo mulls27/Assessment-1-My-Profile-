@@ -78,7 +78,7 @@ My ISFP-A result shows that this personality is sensitive to others therefore I 
 
 My result from my learning style test shows that I’m an auditory learner, this means I learn best by listening and speaking.  
 
-#### 3.	Big Five Personality Test
+### 3.Big Five Personality Test
 
 The results of my Big Five Personality Test are very balanced with no trait over 67% and none being under 44% . O represents your Openness to experience, in which I scored 67%. Having a high score means your open to inventiveness and intellectual curiosity, preferring variety over routine, and seeking fulfillment in intense, euphoric experiences. Having a low score correlates with consistency and caution, seeking fulfillment in perseverance, tending to be pragmatic and data-driven (Stubblebine 2016). Having a score of 67% I believe I’m open to new experience, but don’t prioritise it as something to achieve in my life. 
 C refers to Conscientiousness. People with high scores have  a tendency to be efficient and organised. They also tend to be self-disciplined and dependable. However, people with low scores are easy-going and possibly careless, as well as, flexible and spontaneous. They can be perceived as unreliable, having scored 44% in this area shows that I have some easy-going careless tendencies, however these traits are not strong (Stubblebine 2016). 
