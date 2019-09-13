@@ -53,11 +53,13 @@ To become competitive to gain this job, I think the most important thing I could
 
 - ISFP-A / ISFP-T
 - Adventurer
+
 Source: (16personalities 2019)
 
 # The results of an online learning style test
 
 - Auditory
+
 Source: (SOAR Learning inc)
 
 # The big five personality test 
